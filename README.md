@@ -11,7 +11,7 @@ fully subsidized by the corporatist statist family arrangement.
 
 The highest salary you've ever made was $20/hr. But somehow, that measly 2K per month, after taxes, only 
 nets you $300, after you make your car payments, insurance, and housing. And you find yourself quitting 
-every one of these sorry ass job. Those corporate jobs just don't get you anywhere. You already spent years 
+every one of these sorry ass jobs. Those corporate jobs just don't get you anywhere. You already spent years 
 in the education institution. You see people like cops that make $65000 a year. You read about recent college 
 graduates joining Goldman Sachs. You know not everyone can get rich, but you got put out on the brink. And 
 that's why you've come to hate the corporate state. Your razor-thin margins of profit go into a meal or two. 
