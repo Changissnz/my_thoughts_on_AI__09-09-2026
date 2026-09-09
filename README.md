@@ -22,7 +22,7 @@ fought an honest war since 1945. More time to spare, more political spite. Maybe
 such thing as an honest war. 
 
 The corporate world made you weak. It marginalized you. Corporations drove you to bankruptcy and destroyed whatever 
-business you could have had. Now, you can't afford everything. The home you have been living at is basically house 
+business you could have had. Now, you can't afford anything. The home you have been living at is basically house 
 arrest for you. The living conditions are house arrest, but no one would dare say a thing about it out loud because 
 they say you deserve it. If you make more money than them, they'll send bad word to your employer to get you 
 fired. If your house is bigger than theirs, they dream of burning it down like another Black Wall Street. You're worse 
