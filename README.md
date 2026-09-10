@@ -83,3 +83,6 @@ And it's not to support Palestine or China or Taiwan either. The A.I. Industry: 
 trend...preparing for armed conflict if the big-nosed bankers don't pay up on their thievery from the public. 
 
 Maybe I could finally afford my own housing then. 
+
+Here is a "peace" with a word. And if you haven't read the first three parts already, it's [Ein](https://github.com/Changissnz/my_thoughts_on_AI__07-05-2026), 
+[Zwei](https://github.com/Changissnz/my_thoughts_on_AI__07-17-2026), and [Tres](https://github.com/Changissnz/my_thoughts_on_AI__07-30-2026). 
